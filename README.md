@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...HE THEY 
 - ⚡ Fun fact: I LIKE DOING MUSIC. 
 
-<!---
+<!--- 
 Simonkx36/Simonkx36 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+You can click thE Preview link to take a look at your changes.
+-HE IS 
